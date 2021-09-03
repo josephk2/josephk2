@@ -1,4 +1,4 @@
-<img src="blob:chrome-untrusted://media-app/c26a5b4b-2764-4bdf-b6bb-0218b5dc981b" alt="image01.jpg"/>![image](https://user-images.githubusercontent.com/65615095/131938163-9be6e4b5-64e5-45b5-b14a-0c3fcfc8881a.png)
+<img src="blob:chrome-untrusted://media-app/c26a5b4b-2764-4bdf-b6bb-0218b5dc981b" alt="image01.jpg"/>![image](https://user-images.githubusercontent.com/65615095/131938188-33af3936-4f31-4a7c-8dd1-6c04c45939cd.png)
 
 - 👋 Hi, I’m @josephk2
 - 👀 I’m interested in ... Finance
