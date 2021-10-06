@@ -1,8 +1,14 @@
 `🕯️` Hello my name is joseph! Hope you’ve been having a good spooky day! 
 
 ** ⌢⌢⌢୨`🕷`୧⌢⌢⌢ **
+
+
 i'm a discord bot developer with an intrest in finance!!
+
+
 ** ⌢⌢⌢୨`🕷`୧⌢⌢⌢ **
+
+
 Sorry for the cobwebs!
 
  **important info** 
