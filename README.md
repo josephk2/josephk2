@@ -6,8 +6,14 @@ i'm a discord bot developer with an intrest in finance!!
 Sorry for the cobwebs!
 
  **important info** 
+
+
 ⊱﹕`🎃`**i'm slow to respond!**
+
+
 ⊱﹕`👻`**i am NOT an expert in bot develompment** 
+
+
 ⊱﹕`🦇`**im currently NOT taking bot requests at the moment**
 
 ** ⌢⌢⌢୨`🕷`୧⌢⌢⌢ **
