@@ -1,11 +1,17 @@
-<img src="blob:chrome-untrusted://media-app/c26a5b4b-2764-4bdf-b6bb-0218b5dc981b" alt="image01.jpg"/>![image](https://user-images.githubusercontent.com/65615095/131938188-33af3936-4f31-4a7c-8dd1-6c04c45939cd.png)
+`🕯️` Hello my name is joseph! Hope you’ve been having a good spooky day! 
 
-- 👋 Hi, I’m @josephk2
-- 👀 I’m interested in ... Finance
-- 🌱 I’m currently learning ... finance on Coursera
-- 📫 How to reach me ... josephkmassachusetts@protonmail.com
+** ⌢⌢⌢୨`🕷`୧⌢⌢⌢ **
+i'm a discord bot developer with an intrest in finance!!
+** ⌢⌢⌢୨`🕷`୧⌢⌢⌢ **
+Sorry for the cobwebs!
 
-<!---
-josephk2/josephk2 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+ **important info** 
+⊱﹕`🎃`**i'm slow to respond!**
+⊱﹕`👻`**i am NOT an expert in bot develompment** 
+⊱﹕`🦇`**im currently NOT taking bot requests at the moment**
+
+** ⌢⌢⌢୨`🕷`୧⌢⌢⌢ **
+los angeles <3 https://www.history.com/.image/ar_16:9%2Cc_fill%2Ccs_srgb%2Cfl_progressive%2Cg_faces:center%2Cq_auto:good%2Cw_768/MTYyMzAxNjY4MjA4MTU4NjIx/topic-los-angeles-gettyimages-943489042-feature.jpg
+** ⌢⌢⌢୨`🕷`୧⌢⌢⌢ **
+
+ 
