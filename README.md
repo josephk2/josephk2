@@ -3,7 +3,7 @@
 ** ⌢⌢⌢୨`🕷`୧⌢⌢⌢ **
 
 
-i'm a discord bot developer with an intrest in finance!!
+i'm a discord bot developer with an interest in Finance!
 
 
 ** ⌢⌢⌢୨`🕷`୧⌢⌢⌢ **
@@ -17,7 +17,7 @@ Sorry for the cobwebs!
 ⊱﹕`🎃`**i'm slow to respond!**
 
 
-⊱﹕`👻`**i am NOT an expert in bot develompment** 
+⊱﹕`👻`**i am NOT an expert in bot development** 
 
 
 ⊱﹕`🦇`**im currently NOT taking bot requests at the moment**
