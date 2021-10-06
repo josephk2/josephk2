@@ -14,13 +14,13 @@ Sorry for the cobwebs!
  **important info** 
 
 
-⊱﹕`🎃`**i'm slow to respond!**
+⊱﹕`🎃`  **i'm slow to respond!**
 
 
-⊱﹕`👻`**i am NOT an expert in bot development** 
+⊱﹕`👻`   **i am NOT an expert in bot development** 
 
 
-⊱﹕`🦇`**im currently NOT taking bot requests at the moment**
+⊱﹕`🦇`    **im currently NOT taking bot requests at the moment**
 
 ** ⌢⌢⌢୨`🕷`୧⌢⌢⌢ **
 
