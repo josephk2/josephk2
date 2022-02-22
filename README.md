@@ -3,7 +3,7 @@
 ** ⌢⌢⌢୨`🕷`୧⌢⌢⌢ **
 
 
-i'm a discord bot developer with an interest in Finance!
+i'm a bot developer with an interest in Finance!
 
 
 ** ⌢⌢⌢୨`🕷`୧⌢⌢⌢ **
