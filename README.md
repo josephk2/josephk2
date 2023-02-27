@@ -1,4 +1,4 @@
-`🕯️` Hello my name is joseph! Hope you’ve been having a good spooky day! 
+`🕯️` Hello my name is joseph! Hope you’ve been having a good  day! 
 
 ** ⌢⌢⌢୨`🕷`୧⌢⌢⌢ **
 
@@ -8,8 +8,6 @@ i'm a bot developer with an interest in Finance!
 
 ** ⌢⌢⌢୨`🕷`୧⌢⌢⌢ **
 
-
-Sorry for the cobwebs!
 
  **important info** 
 
