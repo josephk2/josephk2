@@ -1,4 +1,4 @@
-`🕯️` Hello my name is joseph! Hope you’ve been having a good  day! 
+`🕯️` hello! my name is joseph! hope you’ve been having a good day! 
 
 ** ⌢⌢⌢୨`🕷`୧⌢⌢⌢ **
 
